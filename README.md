@@ -2,7 +2,7 @@
 - 👀 I’m interested in developing my skills as a beginner in Software Enginneer
 - 🌱 I’m currently learning HTML and CSS
 - 💞️ I’m looking to collaborate on ...
-- 📫 This is my whatsapp number: 09022684220
+- 📫 This is my whatsapp number: 08105018785
 - 😄 Pronouns: 
 - ⚡ Fun fact: Well at end of every dark tunnel, there would be light, Trust me 
 
